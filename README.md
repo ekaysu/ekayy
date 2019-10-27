@@ -1,0 +1,2 @@
+# ekayy
+Hanya pengguna pemula
